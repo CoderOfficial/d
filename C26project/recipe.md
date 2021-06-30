@@ -1,0 +1,1 @@
+pour some water into a saucepan and let it boil.Once its boiled fill it with milk and keep it to boil some more.After some time passes add some tea leaves/ tea bag into it and stir. After that strain it into a mug or any sort of container. Last but not least add some sugar to add sweetness and serve hot.
